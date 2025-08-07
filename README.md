@@ -135,24 +135,3 @@ Microsoft Windows is a group of several proprietary graphical operating system f
 
 
 
-*My Social Accounts For any kind of help in this Project**
-
-
-Twitter
-
-https://twitter.com/naveedkhanworld
-
-GitHub
-
-https://github.com/naveedkhanworld
-
-Facebook
-
-https://facebook.com/naveeedkhanworld
-
-Instagram
-
-https://www.instagram.com/naveedkhanworld
-
-
-Email Address : naveedkhanworld@outlook.com
